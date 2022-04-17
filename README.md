@@ -1,4 +1,3 @@
 # Welcome to Wangting's org.
-Hi, this is me, wangting.
 
-![avatar]("D:\移动储存位置的文件\桌面\1.png")
+Please check profile to know more about me.
